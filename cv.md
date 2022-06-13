@@ -10,8 +10,6 @@
 
 **Discord:** koperok#9274
 
-
-
 ## About me:
 
 Hello, my name is Roman.
